@@ -11,7 +11,7 @@ I realize the little things are just as important as large, extra large and XXL.
 
 Also I wondered: did the men's room at the office have blue doors? Or us ladies force welcomed to pink doors? And why does that damn work chair not get the concept of moving in a straight line?  
 
-And when water is room temperature from being cold, it lost the coldness or gained warmth (did not give a flying f in thermodynamics and it shows).  
+And when water is room temperature from being cold, it lost the coldness or gained warmth?? (did not give a flying f in thermodynamics and it shows).  
 
 ---
 
@@ -34,7 +34,8 @@ But most of all, I think I miss the feeling of not knowing anything, and not kno
 ## Wisdom and Spirituality
 **Same cities, but different streets:** The sense of warmth just doesn't hit the same. I cannot fathom this enough and put this in words. balled to Vienna by billy joel EVERY. SINGLE. TIME. Its just genuinely heavy.  
 
-**Personality:** As long as I can make a silly joke I think there's nothing to worry about personality, I guess. Also kinda realized love and romantic interests are two very different things (ik mother you are just smiling reading this). And the right people will always walk in just the way wrong ones walk out.  
+**Personality:** As long as I can make a silly joke I think there's nothing to worry about personality, I guess.
+Being introverted and socially odd are two entirely different things, Also kinda realized love and romantic interests are two very different things (ik mother you are just smiling reading this). And the right people will always walk in just the way wrong ones walk out.  
 
 Bhai bhai bhai, I'm very not comfy with fact that I recalled Deepika Padukone's sequence from YJHD "kuch waqt do, sab theek hojayega." Many, many times and never NEVER not failed to feel wholesome.  
 
@@ -92,4 +93,13 @@ Yelled, "How can a person know everything at 18 but nothing at 22?" on top of my
 <img width="225" height="300" alt="image" src="https://github.com/user-attachments/assets/15177c19-1907-4405-89be-4b53b09e646a" />
 <img width="225" height="300" alt="image" src="https://github.com/user-attachments/assets/7588d9f5-2361-474d-95ba-0f90c96595f1" />
 
+---
+all in all its just is a beautiful thing to alive, to be able to drink cold water at 2am is beautiful, to smell the fresh scent of pages is bueatiful, to feel the warmness of the blanket is beautiful, routine is a beautiful thing, having people one call away is the true wealth, painfully long discussions on most niche topics is beautiful, .
+ahhhhhhhhhhhhh
+
+but you know whats hot? WIRED EARPHONES
+
+All in all, life’s just… beautifully ridiculous. The little things hit harder than we think: cold water at 2 AM, the fresh scent of pages, a warm blanket, routines that somehow ground you, friends a call away, endlessly nerdy conversations, having people who have the same music taste is a BLESSINGGG
+
+Ahhhhhhhh… but let’s be real, you know what’s actually hot? WIRED EARPHONES.
 
