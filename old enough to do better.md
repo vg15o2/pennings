@@ -94,10 +94,6 @@ Yelled, "How can a person know everything at 18 but nothing at 22?" on top of my
 <img width="225" height="300" alt="image" src="https://github.com/user-attachments/assets/7588d9f5-2361-474d-95ba-0f90c96595f1" />
 
 ---
-all in all its just is a beautiful thing to alive, to be able to drink cold water at 2am is beautiful, to smell the fresh scent of pages is bueatiful, to feel the warmness of the blanket is beautiful, routine is a beautiful thing, having people one call away is the true wealth, painfully long discussions on most niche topics is beautiful, .
-ahhhhhhhhhhhhh
-
-but you know whats hot? WIRED EARPHONES
 
 All in all, life’s just… beautifully ridiculous. The little things hit harder than we think: cold water at 2 AM, the fresh scent of pages, a warm blanket, routines that somehow ground you, friends a call away, endlessly nerdy conversations, having people who have the same music taste is a BLESSINGGG
 
